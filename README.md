@@ -1,0 +1,2 @@
+# premium-felt-animal-001-felt-animal-joint-wire-posab
+Tired of scattering felt animal patterns, wire joint references, and posability notes across multiple apps? The Felt Animal &amp; Joint Wire Posable Craft Hub consolidates everything you need to design, prototype, and craft articulated felt creatures in one organized Notion workspace.  This all-in-one template transforms chaotic craft ideation into a s
